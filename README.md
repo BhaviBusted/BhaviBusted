@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @BhaviBusted
 - 👀 I’m interested in doing HeHeHeHeHe
-- 🌱 I’m currently learning "How to get Busted!" 
-- 💞️ I’m looking to collaborate with Thiefs and Gangsters!  
-- 📫 How to reach me - Go to any Police Station in the world and ask for BhaviBusted! 
+- 🌱 I’m currently learning "How to get a Gaming PC!" 
+- 💞️ I’m looking to collaborate with ALiens!
+- 📫 How to reach me - Just Find Me
 - BTW (I'm Just Kidding) 
 
 <---
